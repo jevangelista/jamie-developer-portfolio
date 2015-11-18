@@ -1,1 +1,1 @@
-# [Jamie Eula Evangelista's Portfolio](http://jamie-eula.com/) 
+# Jamie Eula Evangelista's Portfolio
